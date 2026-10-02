@@ -1,0 +1,1 @@
+# fullstack-trivalapps-study
